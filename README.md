@@ -1,1 +1,3 @@
-haiii :3 gues who has their own github now! yay!!!!!!!!!!! is me!!!!!!!!!!!!! <|XP
+<p align="center">
+<img src="https://i.ibb.co/dsqRWD3C/roxy.gif">
+</p>
